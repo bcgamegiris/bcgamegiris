@@ -1,4 +1,4 @@
-[👀 Bcgame Türkiye Güncel Giriş için Tıklayın ⚡](https://tinyurl.com/BCGAME-TR)
+[👀 Bcgame Türkiye Güncel Giriş için Tıklayın ⚡](https://tinyurl.com/bcgamevipTR)
  # - 👋 Güncel Giriş İçin Yukaridaki Giriş Linkine Tıklayın
  # - 👋 Bcgame TR Giriş
  # - 👀 # Bcgame Güncel Giriş
